@@ -1,3 +1,4 @@
 Adam Sandler
 Will Smith
-Gloria Pires
+Fernanda Motenegro 
+Xuxa 
